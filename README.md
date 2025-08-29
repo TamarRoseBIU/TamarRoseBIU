@@ -8,5 +8,5 @@
 - 💼 LinkedIn: linkedin.com/in/tamar-rosenzweig
 
 - 😄 Pronouns: She / Her
-- ⚡ Fun fact: Fantasy fiction nerd :)
+- ⚡ Fun fact: fantasy fiction nerd :)
 
